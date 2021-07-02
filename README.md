@@ -20,3 +20,7 @@
 ![unisex-premium-t-shirt-berry-front-60cb6e695ff14](https://user-images.githubusercontent.com/60012090/124314438-06c0bc00-db90-11eb-8d1b-0a4f1735dbdc.png)
 
 ![unisex-premium-t-shirt-black-front-60df583d9c2e4](https://user-images.githubusercontent.com/60012090/124314474-14764180-db90-11eb-9dd0-f9f6a9b72559.png)
+
+![unisex-heavy-blend-hoodie-black-front-60df5e0f1accf](https://user-images.githubusercontent.com/60012090/124316573-6bc9e100-db93-11eb-9c49-949e68e2dfd9.png)
+
+![unisex-premium-t-shirt-lilac-front-60df5e629fd86](https://user-images.githubusercontent.com/60012090/124316674-974ccb80-db93-11eb-8b75-64d6d558874e.png)
