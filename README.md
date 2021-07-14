@@ -29,3 +29,7 @@
 ![unisex-premium-t-shirt-white-front-60d76b1b77141](https://user-images.githubusercontent.com/60012090/124313858-1be91b00-db8f-11eb-9f52-f8e8a392735e.png)
 
 ![unisex-heavy-blend-hoodie-black-front-60d0887053088](https://user-images.githubusercontent.com/60012090/124313589-af6e1c00-db8e-11eb-88f6-9aafe51d4880.png)
+
+![laptop cover](https://user-images.githubusercontent.com/60012090/125667976-052a298f-2ad0-4d57-8f77-fa56162d7044.png)
+
+![iphone case](https://user-images.githubusercontent.com/60012090/125667982-6f916b02-8629-41d8-9ae3-6104bbcd3751.png)
